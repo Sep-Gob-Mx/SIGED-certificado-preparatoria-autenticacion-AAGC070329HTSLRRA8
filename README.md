@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AAGC070329HTSLRRA8
+AAGC070329HTSLRRA8
